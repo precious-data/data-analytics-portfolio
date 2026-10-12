@@ -42,6 +42,5 @@ I’m open to entry-level Data Analyst opportunities and graduate trainee progra
 * LinkedIn: https://www.linkedin.com/in/precious-imolore-86490b202
 * GitHub: Explore my projects and learning journey.
 
-⸻
 
 This portfolio is a work in progress and will grow as I complete more projects.
